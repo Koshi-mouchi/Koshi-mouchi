@@ -1,5 +1,7 @@
 ☆ I’m Koshi, Shi is fine
+
 ★ any pronounce is also fine
+
 ☆ I do enjoy playing games w/ friends
 
 ★ hobbies? 
