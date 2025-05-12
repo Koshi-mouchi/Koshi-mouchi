@@ -1,4 +1,4 @@
-KoSHI
+KoSHI - INTP-t 5w4
 
 🌶️ ♡
 🩹 ♥︎
