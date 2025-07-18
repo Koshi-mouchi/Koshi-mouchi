@@ -10,6 +10,7 @@ KoSHI - INTP-t 5w4
 - I ♥︎ 𝙥𝙡𝙖𝙮𝙞𝙣𝙜
 
 - 𝗿𝗼𝗯𝗹𝗼𝘅
-    - evade / nico's
+    - evade
     - forsaken
+    - blocktales
 - 𝗴𝗲𝗻𝘀𝗵𝗶𝗻
